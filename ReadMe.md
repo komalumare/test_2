@@ -2,5 +2,5 @@
 
 komal is good girl
 
-hii from an conflict
+komal
 conflict doncon1e
